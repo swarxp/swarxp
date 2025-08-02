@@ -1,2 +1,2 @@
-Hi, you can reach me at  waradeswaroop@gmail.com 📧
+Reach me at  waradeswaroop@gmail.com 📧
 
